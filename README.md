@@ -14,4 +14,3 @@ contact me to join the project. I will be happy to help, if the project is withi
 
 CONTACT
 email : rfn.rafi@gmail.com
-Whatsapp : +6285156659074 (fast response)
